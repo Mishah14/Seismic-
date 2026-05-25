@@ -6,3 +6,4 @@ bas esay hi scene chal rha hai
 pyari baat hisab se achi hoti hai
 Wen that give me us
 ye to hona hi tha 
+lo ker lo gal 
