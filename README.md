@@ -8,3 +8,4 @@ Wen that give me us
 ye to hona hi tha 
 lo ker lo gal 
 sab di kher howay
+kado gal bane gi
