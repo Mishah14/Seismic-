@@ -12,3 +12,4 @@ kado gal bane gi
 umeed hai gal ban jaye gi
 right way on the way
 sab sahi hai yaar
+zamana bara kharab hai
