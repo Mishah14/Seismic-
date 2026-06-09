@@ -14,3 +14,4 @@ right way on the way
 sab sahi hai yaar
 zamana bara kharab hai
 yep good fam
+wahoo kya baat hai
