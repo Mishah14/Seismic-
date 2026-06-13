@@ -18,3 +18,4 @@ wahoo kya baat hai
 right way on the way
 moqa hai sahi kerne ka
 lagi wah tha ko
+koi to ho jaye
