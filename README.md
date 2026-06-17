@@ -22,3 +22,4 @@ koi to ho jaye
 look like a feel
 yes mere bhai
 Allah pak raham
+we jag jogya
