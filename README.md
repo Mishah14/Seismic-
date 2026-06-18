@@ -23,3 +23,4 @@ look like a feel
 yes mere bhai
 Allah pak raham
 we jag jogya
+jawa ko chal fer
