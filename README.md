@@ -24,3 +24,4 @@ yes mere bhai
 Allah pak raham
 we jag jogya
 jawa ko chal fer
+sab thek ho jaye ga
