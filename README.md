@@ -26,3 +26,4 @@ we jag jogya
 jawa ko chal fer
 sab thek ho jaye ga
 lab jaye to acha hai
+Great people on the world
