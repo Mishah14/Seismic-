@@ -30,3 +30,4 @@ Great people on the world
 Roz dekh rha hon
 wear all to low
 Allah malik hai
+kab halat badly ge
