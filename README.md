@@ -33,3 +33,4 @@ Allah malik hai
 kab halat badly ge
 sab thek kab hoga
 rab sab bethar kery
+gab sahi hai
