@@ -34,3 +34,4 @@ kab halat badly ge
 sab thek kab hoga
 rab sab bethar kery
 gab sahi hai
+thats the pure fam
